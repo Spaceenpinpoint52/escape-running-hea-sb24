@@ -1,4 +1,4 @@
-#  
+#  secret Scripts for escape running head offers the most advanced escape running head Script, with one-hit kill and god mode. Perfect for dominating
 
 
 
